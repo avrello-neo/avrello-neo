@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currenly learning and want collaborate with anyone
+I'm currenly learning and want collaborate with anyone. And by the way i like ghibli😊🙌
 
 
 ## 🌐 Socials:
